@@ -1,4 +1,4 @@
-# 🎶 Harmonizing Emotions and Climate through Personalized Music 🎶
+# 🎶 Harmonizing Emotions and Climate through Personalized Music 🌤️
 
 ## 👥 Contributors  
 - **Santhosh Reddy**  
